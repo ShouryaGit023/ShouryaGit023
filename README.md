@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **shouryasinha23@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1QkQYDW8nFNsP_E9uDZl00y1KdmcQ8jBs/view?usp=drive_link](https://drive.google.com/file/d/1QkQYDW8nFNsP_E9uDZl00y1KdmcQ8jBs/view?usp=drive_link)
+- 📄 Know about my experiences [here](https://drive.google.com/file/d/1rRPg_EBxNhWWOTNHMN6D3ZkOPSH9UMR2/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
